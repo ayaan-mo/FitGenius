@@ -1,3 +1,5 @@
+**Discord server invite link :** https://discord.gg/5xUcWhs8HX
+
 Team Members
 
 | Full Name | Section | Student ID | Email | Best Way to Contact | Discord Username |
